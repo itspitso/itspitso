@@ -18,7 +18,7 @@ My experience in managing teams, optimising workflows, and overseeing operations
 
 🌱 As a career switcher, I'm committed to learning by doing and growing my skills one project at a time.
 
-📫 Let’s connect on [LinkedIn](www.linkedin.com/in/mmapitso-mashilo)
+📫 Let’s connect on [LinkedIn](www.linkedin.com/in/mmapitso-mashilo](https://www.linkedin.com/in/mmapitso-mashilo/))
 <!--
 **itspitso/itspitso** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
